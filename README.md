@@ -16,8 +16,8 @@ My first repository
 
 ### CAST
 
-1.Mandy Moore as Jamie Sullivan; 
-2.Shane West as Landon Carter; 
+1.Mandy Moore as Jamie Sullivan;            
+2.Shane West as Landon Carter;              
 3.Peter Coyote as Reverend Sullivan;        
 4.Al Thompson as Eric;                                         
 5.Daryl Hannah as Cynthia Carter;          
