@@ -35,7 +35,7 @@ Warner Bros.
 Steven Isaac
 
 ### REVIEWS
->A Walk to Remember is based on the book by Nicholas Sparks. Mandy Moore plays Jamie Sullivan, a Christian and daughter of a Baptist minister. Shane West plays "bad boy" Landon Carter. Pair are inexorably drawn together as they navigate their way through high schoo
+>A Walk to Remember is based on the book by Nicholas Sparks. Mandy Moore plays Jamie Sullivan, a Christian and daughter of a Baptist minister. Shane West plays "bad boy" Landon Carter. Pair are inexorably drawn together as they navigate their way through high school.
 
 ## CONCLUSION
 
