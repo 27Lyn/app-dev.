@@ -18,8 +18,8 @@ My first repository
 
 1.Mandy Moore as Jamie Sullivan; 
 2.Shane West as Landon Carter; 
-3.Peter Coyote as Reverend Sullivan; 
-4.Al Thompson as Eric;                     
+3.Peter Coyote as Reverend Sullivan;        
+4.Al Thompson as Eric;                                         
 5.Daryl Hannah as Cynthia Carter;          
 6.Lauren German as Belinda;                
 7.Clayne Crawford as Dean;
